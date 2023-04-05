@@ -1,5 +1,5 @@
 # 💫 About Me:
- I am 24 years old, who have been<br>passionate forwards technology my whole<br>life. I am following my interests and<br>studying Software Development at TAMK and working as Application Specialist at Sarastia Oy<br>I am motivated and enthusiastic to always learn<br>new things<br>
+ I am 25 years old, who have been<br>passionate forwards technology my whole<br>life. I am following my interests and<br>studying Software Development at TAMK and working as Application Specialist at Sarastia Oy<br>I am motivated and enthusiastic to always learn<br>new things<br>
 
 
 ## 🌐 Socials:
